@@ -1,0 +1,1 @@
+im very passionate about learning new thing in this section i will make some of the very cool and new things to me  mine first project is chorchet and this is what I made a phone cover or I should say a blanket for my phone
